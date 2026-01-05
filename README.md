@@ -1,1 +1,3 @@
 # Los-factores-coyunturales
+Los factores coyunturales eran particularmente desfavorables ya que el crac bolsista, cuya amplitud excepcional ya hemos descrito, era la causa primera de ahondamiento de la depresión. El hundimiento del castillo de naipes, en octubre de 1929, provoca las reacciones en cadena que desembocan todas ellas en la reducción del gasto nacional.
+The cyclical factors were particularly unfavorable, since the stock market crash, whose exceptional scale has already been described, was the primary cause of the deepening of the depression. The collapse of the house of cards in October 1929 triggered a chain of reactions that ultimately led to a reduction in national expenditure.
